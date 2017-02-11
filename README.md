@@ -1,4 +1,4 @@
 # hello-world
 This is a tutorial
 
-Mountain baby all the way!
+Mountan dew is the way! 
